@@ -1,4 +1,4 @@
-"**Saya suka kebebasan bergerak yang diberikan ponsel saya. Itu pasti telah mengubah hidupku.**"
+"**Kita semua niscaya mendapat keuntungan jika kau berkesempatan ke sana!**"
 
-> ~ _By Richard Branson_  
-Industrialis dan pengusaha asal Inggris
+> ~ _By Georgette Heyer_  
+Penulis novel sejarah dan novel detektif dari Inggris
