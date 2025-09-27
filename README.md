@@ -1,4 +1,4 @@
-"**Kepribadian, warisan dan pendidikan adalah bagian dari keberhasilan, tapi ada satu hal yang lebih penting dari semua itu, yaitu Kemampuan berpikir.**"
+"**Saya suka kebebasan bergerak yang diberikan ponsel saya. Itu pasti telah mengubah hidupku.**"
 
-> ~ _By Thomas Finley_  
-
+> ~ _By Richard Branson_  
+Industrialis dan pengusaha asal Inggris
