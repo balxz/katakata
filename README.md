@@ -1,4 +1,4 @@
-"**Pria dengan kelebihan dapat mengontrol keadaan, tetapi pria tanpa kelebihan dikendalikan olehnya, dan seringkali tidak memiliki kesempatan untuk melakukan penilaian.**"
+"**Bukan hanya kamu saja yang orangtuanya bercerai dan menikah lagi. Banyak anak-anak lain yang juga mengalaminya, tapi mereka tetap baik-baik saja!**"
 
-> ~ _By Harvey S. Firestone_  
-Pengusaha dari Amerika Serikat
+> ~ _By Netty Virgianti_  
+Bittersweet Love
