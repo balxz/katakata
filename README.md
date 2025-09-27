@@ -1,4 +1,4 @@
-"**Apabila kita berhenti karena takut gagal, itu berarti kita telah membatasi kemampuan, potensi dan keberuntungan kita hari ini.**"
+"**Kepribadian, warisan dan pendidikan adalah bagian dari keberhasilan, tapi ada satu hal yang lebih penting dari semua itu, yaitu Kemampuan berpikir.**"
 
-> ~ _By Christian Andrianto_  
-Motivator dari Indonesia
+> ~ _By Thomas Finley_  
+
