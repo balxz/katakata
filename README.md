@@ -1,4 +1,4 @@
-"**Tidak ada yang pernah dicapai oleh perang yang tidak bisa kita capai tanpa itu.**"
+"**Apabila kita berhenti karena takut gagal, itu berarti kita telah membatasi kemampuan, potensi dan keberuntungan kita hari ini.**"
 
-> ~ _By Havelock Ellis_  
-Dokter, penulis dan ilmuwan dari Britania Raya
+> ~ _By Christian Andrianto_  
+Motivator dari Indonesia
