@@ -1,4 +1,4 @@
-"**Wanita yang bersikeras memiliki opsi yang sama dengan pria sebaiknya mempertimbangkan opsi menjadi tipe yang kuat dan pendiam.**"
+"**Tidak ada yang lebih mahal dari pada keberanian untuk mengatakan dengan lantang apa yang semua orang pikirkan dalam sebuah bisikan.**"
 
-> ~ _By Fran Lebowitz_  
-Aktris dari Amerika Serikat
+> ~ _By Alfred Bougeart_  
+Penulis dari Perancis
