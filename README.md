@@ -1,4 +1,4 @@
-"**Kita semua niscaya mendapat keuntungan jika kau berkesempatan ke sana!**"
+"**Wanita yang bersikeras memiliki opsi yang sama dengan pria sebaiknya mempertimbangkan opsi menjadi tipe yang kuat dan pendiam.**"
 
-> ~ _By Georgette Heyer_  
-Penulis novel sejarah dan novel detektif dari Inggris
+> ~ _By Fran Lebowitz_  
+Aktris dari Amerika Serikat
