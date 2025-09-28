@@ -1,4 +1,4 @@
-"**Kebodohan adalah penyakit menular, terutama di antara orang-orang bodoh.**"
+"**Adat mengajarkan anak meminta maaf pada orangtua dengan mencium lutut mereka.**"
 
-> ~ _By Louis-Philippe de Ségur_  
-Penyair, diplomat dan sejarawan dari Perancis
+> ~ _By Oka Aurora_  
+Penulis dari Indonesia
