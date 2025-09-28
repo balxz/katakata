@@ -1,4 +1,4 @@
-"**Swiss adalah negara di mana sangat sedikit hal dimulai, tetapi banyak hal berakhir.**"
+"**Hotaro, tolong lindungi  Klub Sastra Klasik, tempat kakakmu ini bernaung waktu muda dulu.**"
 
-> ~ _By F. Scott Fitzgerald_  
-Penulis dari Amerika Serikat
+> ~ _By Yonezawa Honobu_  
+Penulis dari Jepang
