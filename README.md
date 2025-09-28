@@ -1,4 +1,4 @@
-"**kuah kuning pekat bercampur minyak begitu menggoda, rempah-rempahnya terlihat mengapung di atasnya. Seikat batang serailah yang membuat aroma kuah tengkleng itu lebih nikmat. Saat Bu Edi mulai mengaduk, terlihat beberapa iga dan tulang kambing dengan sedikit daging yang menempel berwarna kuning, menggoda selera.**"
+"**Saya telah menemukan bahwa banyak pemain puncak menggunakan keterampilan latihan mental visualisasi. Mereka secara mental mengalami peristiwa penting sebelum terjadi.**"
 
-> ~ _By Naima Knisa_  
-Penulis dari Indonesia
+> ~ _By Charles A. Garfield_  
+Psikolog dan penulis Amerika
