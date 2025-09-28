@@ -1,4 +1,4 @@
-"**Dasar orang kaya, mentang-mentang kaya boleh melakukan apa saja, seenaknya sesuka hati, menguasai apa saja yang mereka mau.**"
+"**Setiap orang punya masa lalu. Dan nggak semuanya bagus. Yang penting itu gimana dia mau belajar dan memperbaiki dirinya.**"
 
-> ~ _By Syahmedi Dean_  
-Monsoon: Apa Maksud Setuang Air Teh
+> ~ _By Merry Maeta Sari_  
+Penulis dari Indonesia
