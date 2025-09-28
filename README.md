@@ -1,4 +1,4 @@
-"**Saya mendefinisikan seksualitas saya dalam hal orang-orang yang saya cintai.**"
+"**Ketika saya menginjak kesialan saya, saya menjadi lebih tinggi.**"
 
-> ~ _By George Michael_  
-Penyanyi dan penulis lagu pop Inggris
+> ~ _By Friedrich Hölderlin_  
+Penyair dari Jerman
