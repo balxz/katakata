@@ -1,4 +1,4 @@
-"**Pernah ada seekor babon cerdas yang selalu mengembuskan napas bassoon karena dia berkata, ''Tampaknya dalam miliaran tahun saya pasti akan memainkan sebuah nada.''**"
+"**Apa menurutmu aku menyerap semua dampaknya? Bahwa ketika Mom pergi, hanya aku yang merasakannya? Dia meninggalkanmu juga.**"
 
-> ~ _By Ezra Pound_  
-Penyair, penterjemah dan penerbit dari Amerika Serikat
+> ~ _By Rainbow Rowell_  
+Penulis dari Amerika
