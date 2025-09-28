@@ -1,4 +1,4 @@
-"**Ketika saya menginjak kesialan saya, saya menjadi lebih tinggi.**"
+"**Yang dibutuhkan dunia adalah lebih banyak jenius dengan kerendahan hati, hanya sedikit dari kita yang tersisa.**"
 
-> ~ _By Friedrich Hölderlin_  
-Penyair dari Jerman
+> ~ _By Oscar Levant_  
+Pianis dan aktor dari Amerika Serikat
