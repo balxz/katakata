@@ -1,4 +1,4 @@
-"**Karena perasaan suka itu perasaan yang muncul ketika lo jujur sama diri lo.**"
+"**Karena kita tidak bisa mengubah kenyataan, mari kita mengubah mata agar bisa melihat kenyataan.**"
 
-> ~ _By Clara Canceriana_  
-Penulis dari Indonesia
+> ~ _By Nikos Kazantzakis_  
+Penulis dari Yunani
