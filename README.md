@@ -1,4 +1,4 @@
-"**Bagi saya, kritik yang membangun adalah ketika orang mengambil kepemilikan atas ide-idenya. Itu sebabnya saya tidak mendengarkan apa pun yang anonim. Tapi itu sulit; ketika ada sesuatu yang menyakitkan di luar sana, saya masih ingin membacanya berulang kali dan menghafalnya serta menjelaskan sudut pandang saya kepada orang tersebut.**"
+"**Lima detik tak sengaja menatap mata itu lagi. Menarikku pada lorong waktu masa lalu. Saat pertama retina kita saling bertemu. Tak menyalahkan kamu sama sekali.**"
 
-> ~ _By Brene Brown_  
-Profesor Amerika, dosen, penulis
+> ~ _By Prilly Latuconsina_  
+5 Detik Dan Rasa Rindu
