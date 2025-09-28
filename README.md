@@ -1,4 +1,4 @@
-"**Hanya ada dua pilihan bagimu, salah satu dari kalian akan terus hidup atau tidak ada yang hidup sama sekali…**"
+"**Pria menggunakan malam hari untuk menghapus kita.**"
 
-> ~ _By Retno Mawarni_  
-Phosphorus
+> ~ _By Andrea Dworkin_  
+Penulis, aktivis dari Amerika
