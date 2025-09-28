@@ -1,4 +1,4 @@
-"**Saya membaca dan berjalan bermil-mil di malam hari di sepanjang pantai, menulis syair kosong yang kosong dan mencari seseorang yang luar biasa yang akan keluar dari kegelapan dan mengubah hidup saya. Tidak pernah terlintas dalam pikiran saya bahwa orang itu bisa menjadi saya.**"
+"**Kesuksesan bukanlah kunci dari kebahagiaan. Sebaliknya kebahagiaan adalah kunci dari kesuksesan.**"
 
-> ~ _By Anna Quindlen_  
-Penulis dari Amerika
+> ~ _By Bob Dylan_  
+Pemusik dari Amerika Serikat
