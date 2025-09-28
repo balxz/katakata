@@ -1,4 +1,4 @@
-"**Hotaro, tolong lindungi  Klub Sastra Klasik, tempat kakakmu ini bernaung waktu muda dulu.**"
+"**Jaga kata-kata Anda karena akan menjadi tindakan.**"
 
-> ~ _By Yonezawa Honobu_  
-Penulis dari Jepang
+> ~ _By Lao Zu_  
+Filsuf dari Tiongkok
