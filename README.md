@@ -1,4 +1,4 @@
-"**Mimpi hanya akan mimpi kalau lo nggak berusaha. Makanya lo harus berusaha.**"
+"**Pengetahuan tentang jantung harus menambah pengetahuan kepala**"
 
-> ~ _By Vanesa Marcella_  
-Penulis dari Indonesia
+> ~ _By Moritz Lazarus_  
+Filsuf dan psikolog Yahudi
