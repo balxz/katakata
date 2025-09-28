@@ -1,4 +1,4 @@
-"**Sebuah pemerintahan yang bijaksana dan cermat, yang akan mencegah orang-orang melukai satu sama lain, akan membebaskan mereka untuk menjalankan tujuan dari industri dan kebangkitan mereka sendiri, dan tidak akan menyia-nyiakan tenaga orang lain yang membantunya.**"
+"**Bukankah itu namanya gejala gila kalau kau berpikir kau orang normal?**"
 
-> ~ _By Thomas Jefferson_  
-Presiden (ke-3), filsuf dan artis dari Amerika Serikat
+> ~ _By Baek Myo_  
+Penulis teenlit Korea
