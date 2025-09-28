@@ -1,4 +1,4 @@
-"**Tidak ada cinta yang hilang.**"
+"**Hati yang mulia tidak mengandaikan pikiran buruk di pikiran yang lain, karena pikiran itu tidak memiliki dirinya sendiri.**"
 
-> ~ _By Marcel Achard_  
-Penulis dari Perancis
+> ~ _By Jean Baptiste Racine_  
+Dramawan dari Perancis
