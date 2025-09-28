@@ -1,4 +1,4 @@
-"**Dunia memiliki persenjataan berlebih dan perdamaian yang kurang didanai.**"
+"**Jika Anda tidak melangkah maju, maka Anda akan berada di tempat yang sama.**"
 
-> ~ _By Ban Kimoon_  
-Politisi dan diplomat Korea Selatan
+> ~ _By Nora Robert_  
+Penulis dari Amerika Serikat
