@@ -1,4 +1,4 @@
-"**Keseriusan adalah kebodohan dikirim ke perguruan tinggi.**"
+"**Swiss adalah negara di mana sangat sedikit hal dimulai, tetapi banyak hal berakhir.**"
 
-> ~ _By P. J. O'Rourke_  
-Jurnalis Amerika
+> ~ _By F. Scott Fitzgerald_  
+Penulis dari Amerika Serikat
