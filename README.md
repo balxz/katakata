@@ -1,4 +1,4 @@
-"**Jalan menuju sukses dipenuhi oleh para wanita yang mendorong suami mereka.**"
+"**Penulisan jurnal adalah perjalanan ke pedalaman.**"
 
-> ~ _By Lord Thomas Dewar_  
-Pengusaha dari Skotlandia
+> ~ _By Christina Baldwin_  
+Penulis Amerika
