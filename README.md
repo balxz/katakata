@@ -1,4 +1,4 @@
-"**Kata-kata yang tepat di tempat yang tepat, membuat definisi yang benar dari suatu gaya.**"
+"**Jangan beri kesempatan pada diri sendiri untuk menunda-nunda sesuatu yang harus dilakukan. Pastikan untuk segera bertindak seperti yang telah Anda putuskan! Action is power!**"
 
-> ~ _By Jonathan Swift_  
-Penulis dari Inggris
+> ~ _By Andrie Wongso_  
+Motivator dan pengusaha asal Indonesia
