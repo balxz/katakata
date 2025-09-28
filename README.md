@@ -1,4 +1,4 @@
-"**Beberapa dari kita akan melakukan pekerjaan kita dengan baik dan beberapa tidak, tetapi kita semua akan dinilai hanya oleh satu hal - hasilnya.**"
+"**Jangan pernah berhenti bermimpi karena mungkin suatu saat nanti, mimpi kalian akan jadi kenyataan.**"
 
-> ~ _By Vince Lombardi_  
-Pemain dan pelatih sepak bola Amerika
+> ~ _By Bambang Pamungkas_  
+Pemain sepak bola Indonesia
