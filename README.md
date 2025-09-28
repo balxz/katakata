@@ -1,4 +1,4 @@
-"**Calm kepercayaan diri adalah sebagai jauh dari kesombongan sebagai keinginan untuk mendapatkan kehidupan yang layak adalah jauh dari keserakahan.**"
+"**Semuanya harus diperhitungkan. Jika fakta tidak sesuai dengan teori - biarkan teori itu pergi.**"
 
-> ~ _By Channing Pollock_  
-Dramawan dan pengkritik dari Amerika Serikat
+> ~ _By Agatha Christie_  
+Penulis dari Britania Raya
