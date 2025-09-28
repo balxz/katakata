@@ -1,4 +1,4 @@
-"**Karena kita tidak bisa mengubah kenyataan, mari kita mengubah mata agar bisa melihat kenyataan.**"
+"**Sebab, bahaya yang sesungguhnya bukan pada orang yang marah-marah, tapi pada orang yang diam. Orang marah dapat diukur hatinya, orang diam tak mudah ditakar akalnya.**"
 
-> ~ _By Nikos Kazantzakis_  
-Penulis dari Yunani
+> ~ _By Remy Sylado_  
+Sastrawan asal Indonesia
