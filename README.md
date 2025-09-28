@@ -1,4 +1,4 @@
-"**Kerinduan mutlak dari satu tubuh manusia untuk tubuh tertentu lainnya dan ketidakpeduliannya terhadap substitusi adalah salah satu misteri utama kehidupan.**"
+"**Kata-kata yang tepat di tempat yang tepat, membuat definisi yang benar dari suatu gaya.**"
 
-> ~ _By Iris Murdoch_  
-Filsuf dan novelis dari Irlandia / Britania Raya
+> ~ _By Jonathan Swift_  
+Penulis dari Inggris
