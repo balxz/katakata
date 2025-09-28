@@ -1,4 +1,4 @@
-"**Saya memiliki momen ibu yang buruk sepanjang waktu. Terkadang saya memiliki reaksi yang salah, tetapi saya mencoba mengingat untuk menarik kembali dan memikirkannya. Bahkan ketika saya membuat kesalahan, saya kemudian bisa berkata, 'Oh, oke, ayo lakukan ini lagi.'**"
+"**Saya menerima kepunahan sebagai penjelasan terbaik spesies yang terpisah. Saya melihat bahwa penyebab yang sama pasti telah mereduksi banyak spesies dari kisaran besar menjadi kecil, dan bahwa itu mungkin telah mengurangi genera besar menjadi sangat kecil, dan dari keluarga.**"
 
-> ~ _By Brooke Shields_  
-Aktris dan model Amerika
+> ~ _By Asa Gray_  
+Ahli botani Amerika
