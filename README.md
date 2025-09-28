@@ -1,4 +1,4 @@
-"**Saya telah menemukan bahwa banyak pemain puncak menggunakan keterampilan latihan mental visualisasi. Mereka secara mental mengalami peristiwa penting sebelum terjadi.**"
+"**Calm kepercayaan diri adalah sebagai jauh dari kesombongan sebagai keinginan untuk mendapatkan kehidupan yang layak adalah jauh dari keserakahan.**"
 
-> ~ _By Charles A. Garfield_  
-Psikolog dan penulis Amerika
+> ~ _By Channing Pollock_  
+Dramawan dan pengkritik dari Amerika Serikat
