@@ -1,4 +1,4 @@
-"**Setiap orang punya masa lalu. Dan nggak semuanya bagus. Yang penting itu gimana dia mau belajar dan memperbaiki dirinya.**"
+"**Tidak ada cinta yang hilang.**"
 
-> ~ _By Merry Maeta Sari_  
-Penulis dari Indonesia
+> ~ _By Marcel Achard_  
+Penulis dari Perancis
