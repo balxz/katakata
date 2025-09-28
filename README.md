@@ -1,4 +1,4 @@
-"**Di dunia ini, Anda harus sedikit terlalu baik untuk menjadi cukup.**"
+"**Kebodohan adalah penyakit menular, terutama di antara orang-orang bodoh.**"
 
-> ~ _By Pierre Carlet de Chamblain de Marivaux_  
-Dramawan dari Perancis
+> ~ _By Louis-Philippe de Ségur_  
+Penyair, diplomat dan sejarawan dari Perancis
