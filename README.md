@@ -1,4 +1,4 @@
-"**Saya menerima kepunahan sebagai penjelasan terbaik spesies yang terpisah. Saya melihat bahwa penyebab yang sama pasti telah mereduksi banyak spesies dari kisaran besar menjadi kecil, dan bahwa itu mungkin telah mengurangi genera besar menjadi sangat kecil, dan dari keluarga.**"
+"**Dasar orang kaya, mentang-mentang kaya boleh melakukan apa saja, seenaknya sesuka hati, menguasai apa saja yang mereka mau.**"
 
-> ~ _By Asa Gray_  
-Ahli botani Amerika
+> ~ _By Syahmedi Dean_  
+Monsoon: Apa Maksud Setuang Air Teh
