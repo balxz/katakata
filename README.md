@@ -1,4 +1,4 @@
-"**Kecerobohan adalah satu-satunya perasaan yang dapat mengilhami hidup kita dan tidak memiliki argumen untuk membela diri.**"
+"**Bukan pernikahan yang saya dambakan. Banyak teman saya yang telah menikah cukup menyedihkan. Dalam satu setengah tahun, kebanyakan dari mereka tidak bahagia atau bercerai.**"
 
-> ~ _By Françoise Sagan_  
-Penulis dari Perancis
+> ~ _By Ben Elliot_  
+Politisi Inggris
