@@ -1,4 +1,4 @@
-"**Aku bukan bilang ‘tetap punya penghasilan’, tapi ‘punya penghasilan tetap’, itu dua hal yang berbeda. Yang satu jumlahnya gak tetap, enggak rutin tiap bulan. Yang satu lagi rutin tiap bulan dengan jumlah yang sama. Mungkinl ebih kalau ada bonus prestasi.**"
+"**Mimpi hanya akan mimpi kalau lo nggak berusaha. Makanya lo harus berusaha.**"
 
-> ~ _By Della Firayama_  
-Senja Milik Sandra
+> ~ _By Vanesa Marcella_  
+Penulis dari Indonesia
