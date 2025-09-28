@@ -1,4 +1,4 @@
-"**Orang yang mengatakan tidak punya waktu adalah orang yang pemalas.**"
+"**Karena perasaan suka itu perasaan yang muncul ketika lo jujur sama diri lo.**"
 
-> ~ _By G. C. Lichtenberg_  
-Penulis dan ahli fisika dari Jerman
+> ~ _By Clara Canceriana_  
+Penulis dari Indonesia
