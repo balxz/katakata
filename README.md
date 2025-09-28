@@ -1,4 +1,4 @@
-"**Adalah pengecut, manusia yang selalu berpura-pura dan selalu bersembunyi di balik make up tebal dan kostum untuk menutupi kesedihan yang ada pada diri kalian selama ini!**"
+"**Orang yang mengatakan tidak punya waktu adalah orang yang pemalas.**"
 
-> ~ _By Sherina Salsabila_  
-Spooky Stories: Clown Terror
+> ~ _By G. C. Lichtenberg_  
+Penulis dan ahli fisika dari Jerman
