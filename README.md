@@ -1,4 +1,4 @@
-"**Sampai dua hari setelah penebangan. Kamarku penuh dengan jin-jin yang notabene adalah keluarganya. Mereka melayang di langit-langit menatapku nanar.**"
+"**Ibarat sepasang sayap burung. Keyakinan adalah salah satu sayap. Sayap yang lain adalah keterbukaan yang disertai kerendahatian.**"
 
-> ~ _By Afsir M_  
-Penulis Indonesia
+> ~ _By Gede Prama_  
+Penulis, pembicara dan motivator dari Indonesia
