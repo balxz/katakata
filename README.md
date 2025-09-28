@@ -1,4 +1,4 @@
-"**Apa menurutmu aku menyerap semua dampaknya? Bahwa ketika Mom pergi, hanya aku yang merasakannya? Dia meninggalkanmu juga.**"
+"**Hanya ada dua pilihan bagimu, salah satu dari kalian akan terus hidup atau tidak ada yang hidup sama sekali…**"
 
-> ~ _By Rainbow Rowell_  
-Penulis dari Amerika
+> ~ _By Retno Mawarni_  
+Phosphorus
