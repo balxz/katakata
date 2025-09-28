@@ -1,4 +1,4 @@
-"**Tuhan memberikan cinta pada kita. Dan meminjamkan sesuatu untuk dicintai.**"
+"**Bagiku, setiap jam siang dan malam adalah mukjizat yang luar biasa sempurna.**"
 
-> ~ _By Alfred Lord Tennyson_  
-Penyair dari Inggris
+> ~ _By Walt Whitman_  
+Penyair, esais dan wartawan dari Amerika Serikat
