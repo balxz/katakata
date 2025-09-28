@@ -1,4 +1,4 @@
-"**Pengetahuan tentang jantung harus menambah pengetahuan kepala**"
+"**Saya mendefinisikan seksualitas saya dalam hal orang-orang yang saya cintai.**"
 
-> ~ _By Moritz Lazarus_  
-Filsuf dan psikolog Yahudi
+> ~ _By George Michael_  
+Penyanyi dan penulis lagu pop Inggris
