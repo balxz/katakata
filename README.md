@@ -1,4 +1,4 @@
-"**Tidak perlu menunggu untuk bisa menjadi cahaya bagi orang-orang di sekelilingmu. Lakukan kebaikan, sekecil apa pun, sekarang juga.**"
+"**Terkadang kita harus menerima apa yang terjadi.**"
 
-> ~ _By Andy F. Noya_  
-Presenter, reporter dari Indonesia
+> ~ _By Alfian Daniear_  
+Soulmatch
