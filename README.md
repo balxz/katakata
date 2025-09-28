@@ -1,4 +1,4 @@
-"**Terkadang kita harus menerima apa yang terjadi.**"
+"**Keseriusan adalah kebodohan dikirim ke perguruan tinggi.**"
 
-> ~ _By Alfian Daniear_  
-Soulmatch
+> ~ _By P. J. O'Rourke_  
+Jurnalis Amerika
