@@ -1,4 +1,4 @@
-"**Ketika mendapat kesempatan untuk keluar dari zona nyaman, rasa cemas pasti menyerbu.**"
+"**Beberapa dari kita akan melakukan pekerjaan kita dengan baik dan beberapa tidak, tetapi kita semua akan dinilai hanya oleh satu hal - hasilnya.**"
 
-> ~ _By Elektra Queen_  
-Penulis dari Indonesia
+> ~ _By Vince Lombardi_  
+Pemain dan pelatih sepak bola Amerika
