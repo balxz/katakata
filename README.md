@@ -1,4 +1,4 @@
-"**Tidak menjadi soal siapa orang yang kau nikahi, karena ketika terjaga kau pun telah menikah dengan yang lain.**"
+"**Tuhan memberikan cinta pada kita. Dan meminjamkan sesuatu untuk dicintai.**"
 
-> ~ _By Marlon Brando_  
-Aktor dan penyanyi dari Amerika Serikat
+> ~ _By Alfred Lord Tennyson_  
+Penyair dari Inggris
