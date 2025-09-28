@@ -1,4 +1,4 @@
-"**Ancaman ada. Tapi saya ikhlas, tinggal tunggu kapan Tuhan ambil nyawa saya.**"
+"**Tidak ada noda dan tidak ada yang mencuci darah.**"
 
-> ~ _By Tri Rismaharini_  
-Walikota Surabaya (2010-2015, 2016-2021)
+> ~ _By Joseph Roux_  
+Kartograf dari Perancis
