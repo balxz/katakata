@@ -1,4 +1,4 @@
-"**Tidak ada noda dan tidak ada yang mencuci darah.**"
+"**Dalam politik, kedunguan itu bukanlah halangan.**"
 
-> ~ _By Joseph Roux_  
-Kartograf dari Perancis
+> ~ _By Napoleon Bonaparte_  
+Negarawan dan kaisar dari Perancis
