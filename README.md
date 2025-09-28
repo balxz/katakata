@@ -1,4 +1,4 @@
-"**Setiap kali ada orang yang menantang sesuatu, kekuatan yang mencoba menggambarkan mereka sebagai ekstremis atau radikal atau apapun. Dan saya pikir itu sebenarnya tidak masuk akal.**"
+"**Cinta hanya mati bila pertumbuhan berhenti.**"
 
-> ~ _By Bill McKibben_  
-Ahli lingkungan hidup Amerika, penulis, dan jurnalis
+> ~ _By Pearl S. Buck_  
+Penulis dan Peraih Nobel sastra (1938) dari Amerika Serikat
