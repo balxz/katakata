@@ -1,4 +1,4 @@
-"**Cinta hanya mati bila pertumbuhan berhenti.**"
+"**Cara terbaik agar beruntung dalam cinta, adalah dengan tidak terburu-buru dan hati-hati dalam memilih.**"
 
-> ~ _By Pearl S. Buck_  
-Penulis dan Peraih Nobel sastra (1938) dari Amerika Serikat
+> ~ _By Carol Weston_  
+Penulis dari Amerika Serikat
