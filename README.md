@@ -1,4 +1,4 @@
-"**Malam ini kau milikku sepenuhnya, Kamu memberikan cintamu dengan begitu manis Malam ini cahaya cinta ada di matamu, Tapi apakah kamu akan mencintaiku besok?**"
+"**Mati. Menjadi mayat itu mudah, yang sulit manunggaling kawula gusti.**"
 
-> ~ _By Carole King_  
-Penyanyi-penulis lagu Amerika
+> ~ _By Agus Rois_  
+Penulis Indonesia
