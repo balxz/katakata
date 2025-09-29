@@ -1,4 +1,4 @@
-"**Keabadian tidak lebih lama dari kehidupan**"
+"**Rasa kemanusiaan makin lama makin merepotkan.**"
 
-> ~ _By René Char_  
-Penulis dan penyair dari Perancis
+> ~ _By Nonier_  
+Penulis dari Indonesia
