@@ -1,4 +1,4 @@
-"**Inti dari cinta romantis adalah awal yang indah, setelah itu kesedihan dan ketidakmungkinan menjadi aturan.**"
+"**Kelembutan adalah perasaan yang menyenangkan dan menarik seperti musik bagi militer.**"
 
-> ~ _By Anita Brookner_  
-Penulis dari Britania Raya
+> ~ _By Françoise Sagan_  
+Penulis dari Perancis
