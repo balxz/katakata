@@ -1,4 +1,4 @@
-"**Perbuatan adalah cerminan isi hati. Perasaan iri dan mementingkan diri sendiri, menyebabkan kekacauan dan segala macam perbuatan jahat.**"
+"**Inti dari cinta romantis adalah awal yang indah, setelah itu kesedihan dan ketidakmungkinan menjadi aturan.**"
 
-> ~ _By Kezia Evia Wiadji_  
-Peony’s World
+> ~ _By Anita Brookner_  
+Penulis dari Britania Raya
