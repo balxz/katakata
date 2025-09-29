@@ -1,4 +1,4 @@
-"**Yang penting kita nggak boleh menyerah.**"
+"**Kontrol nasib Anda sendiri atau orang lain akan mengontrolnya.**"
 
-> ~ _By Nonier_  
-Penulis dari Indonesia
+> ~ _By Jack Welch_  
+Pengusaha dan CEO General Electric Amerika Serikat
