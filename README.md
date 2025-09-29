@@ -1,4 +1,4 @@
-"**Ini adalah kejahatan yang, dalam jangka panjang, dokter selalu menyembuhkan kita: itu adalah kepercayaan kita terhadap mereka.**"
+"**Sayangnya, kecantikan moral dalam seni - seperti kecantikan fisik seseorang - sangat mudah rusak. Itu tidak tahan lama seperti keindahan artistik atau intelektual. Kecantikan moral memiliki kecenderungan untuk membusuk dengan sangat cepat menjadi perasaan atau ketidaktepatan waktu.**"
 
-> ~ _By Jean Antoine Petit-Senn_  
-Penyair dari Perancis
+> ~ _By Susan Sontag_  
+Penulis dan aktivis politik dari Amerika Serikat
