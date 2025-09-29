@@ -1,4 +1,4 @@
-"**Kontrol nasib Anda sendiri atau orang lain akan mengontrolnya.**"
+"**Laut membawa jasadku**"
 
-> ~ _By Jack Welch_  
-Pengusaha dan CEO General Electric Amerika Serikat
+> ~ _By Isbedy Stiawan ZS_  
+Penulis dari Indonesia
