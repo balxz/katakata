@@ -1,4 +1,4 @@
-"**Banyak orang di Hollywood, dan di mana-mana, beroperasi dengan rasa takut. Tidak ada yang mau dipecat, jadi semua orang takut mengambil risiko. Ada uang yang terlibat, dan ada juga karier dan reputasi yang dipertaruhkan.**"
+"**Ini adalah kejahatan yang, dalam jangka panjang, dokter selalu menyembuhkan kita: itu adalah kepercayaan kita terhadap mereka.**"
 
-> ~ _By Billy Eichner_  
-Komedian, aktor, dan produser Amerika
+> ~ _By Jean Antoine Petit-Senn_  
+Penyair dari Perancis
