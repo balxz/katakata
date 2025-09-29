@@ -1,4 +1,4 @@
-"**Jika Anda melihat dunia, Anda akan merasa tertekan. Jika Anda melihat ke dalam, Anda akan depresi. Jika Anda melihat Tuhan, Anda akan beristirahat.**"
+"**Kehidupan selanjutnya hanya akan ada kejayaan jika kamu belajar untuk hidup dalam hubungan yang sempurna dengan Sang Pencipta.**"
 
-> ~ _By Corrie ten Boom_  
-Pejuang dan penulis dari Belanda / Amerika Serikat
+> ~ _By Sathya Sai Baba_  
+Guru spiritual dari India
