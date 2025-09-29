@@ -1,4 +1,4 @@
-"**Kehidupan selanjutnya hanya akan ada kejayaan jika kamu belajar untuk hidup dalam hubungan yang sempurna dengan Sang Pencipta.**"
+"**Banyak orang di Hollywood, dan di mana-mana, beroperasi dengan rasa takut. Tidak ada yang mau dipecat, jadi semua orang takut mengambil risiko. Ada uang yang terlibat, dan ada juga karier dan reputasi yang dipertaruhkan.**"
 
-> ~ _By Sathya Sai Baba_  
-Guru spiritual dari India
+> ~ _By Billy Eichner_  
+Komedian, aktor, dan produser Amerika
