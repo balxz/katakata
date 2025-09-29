@@ -1,4 +1,4 @@
-"**Jika kita begitu kejam terhadap minoritas, mengapa mereka terus datang ke sini? Mengapa mereka tidak menyelinap melintasi perbatasan Meksiko untuk menuju Taliban?**"
+"**Yang penting kita nggak boleh menyerah.**"
 
-> ~ _By Ann Coulter_  
-Pakar dan penulis media sayap kanan Amerika
+> ~ _By Nonier_  
+Penulis dari Indonesia
