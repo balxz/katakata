@@ -2,7 +2,7 @@ name: Kata-kata Hari Ini
 
 on:
    schedule:
-      - cron: '*/11 * * * *'
+      - cron: '0 */5 * * *'
    workflow_dispatch:
 
 jobs:
