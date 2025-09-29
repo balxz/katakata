@@ -1,4 +1,4 @@
-"**Bukan pernikahan yang saya dambakan. Banyak teman saya yang telah menikah cukup menyedihkan. Dalam satu setengah tahun, kebanyakan dari mereka tidak bahagia atau bercerai.**"
+"**Perbuatan adalah cerminan isi hati. Perasaan iri dan mementingkan diri sendiri, menyebabkan kekacauan dan segala macam perbuatan jahat.**"
 
-> ~ _By Ben Elliot_  
-Politisi Inggris
+> ~ _By Kezia Evia Wiadji_  
+Peony’s World
