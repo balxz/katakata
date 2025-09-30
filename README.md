@@ -1,4 +1,4 @@
-"**Seorang pria muda malu untuk menanyai yang lebih tua.**"
+"**Mengajar berarti belajar lagi.**"
 
-> ~ _By Homer_  
-
+> ~ _By Oliver Wendell Holmes_  
+Penulis dan penyair dari Amerika Serikat
