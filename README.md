@@ -1,4 +1,4 @@
-"**Tidak biasanya rusak kok ya rusak ya sekarang?**"
+"**Seorang pria muda malu untuk menanyai yang lebih tua.**"
 
-> ~ _By Bondan Winarno_  
-Petang Panjang di Central Park
+> ~ _By Homer_  
+
