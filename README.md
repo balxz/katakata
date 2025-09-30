@@ -1,4 +1,4 @@
-"**Tidak ada cinta yang menolak ketidakhadiran.**"
+"**Tidak biasanya rusak kok ya rusak ya sekarang?**"
 
-> ~ _By Anatole France_  
-Penulis dan Peraih Nobel Sastra (1921) dari Perancis
+> ~ _By Bondan Winarno_  
+Petang Panjang di Central Park
