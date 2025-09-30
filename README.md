@@ -1,4 +1,4 @@
-"**Mengajar berarti belajar lagi.**"
+"**Saya belajar bahwa kita bisa melakukan apapun, tapi kita tidak bisa melakukan semuanya. Paling tidak pada waktu yang sama.**"
 
-> ~ _By Oliver Wendell Holmes_  
-Penulis dan penyair dari Amerika Serikat
+> ~ _By Dan Millman_  
+Penulis buku dari Amerika Serikat
