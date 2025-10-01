@@ -1,4 +1,4 @@
-"**Televisi memiliki bioritme yang berbeda dengan film. Saya suka biorhythm dari TV.**"
+"**Hidup cuma sekali, jangan menua tanpa arti.**"
 
-> ~ _By Steven Spielberg_  
-Sutradara dan produser film dari Amerika Serikat
+> ~ _By Ridwan Kamil_  
+Arsitek dan Walikota Bandung, Indonesia (2013-2018)
