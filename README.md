@@ -1,4 +1,4 @@
-"**Saya belajar bahwa kita bisa melakukan apapun, tapi kita tidak bisa melakukan semuanya. Paling tidak pada waktu yang sama.**"
+"**Hidup adalah keberanian menghadapi tanda tanya.**"
 
-> ~ _By Dan Millman_  
-Penulis buku dari Amerika Serikat
+> ~ _By Soe Hok Gie_  
+Aktivis Indonesia Tionghoa
