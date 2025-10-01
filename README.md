@@ -1,4 +1,4 @@
-"**Hidup adalah keberanian menghadapi tanda tanya.**"
+"**Cinta itu bukan hanya perasaan senang ketika bersamanya. Cinta juga adalah komitmen untuk tetap bersamanya, ketika perasaan senang itu hilang.**"
 
-> ~ _By Soe Hok Gie_  
-Aktivis Indonesia Tionghoa
+> ~ _By Merry Riana_  
+Motivator, pengusaha dan penulis dari Indonesia
