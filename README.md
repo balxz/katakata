@@ -1,4 +1,4 @@
-"**Hidup cuma sekali, jangan menua tanpa arti.**"
+"**Terkadang cinta datang tanpa harus dimengerti. Semua mengalir begitu saja tanpa ada yang mampu menghentikannya.**"
 
-> ~ _By Ridwan Kamil_  
-Arsitek dan Walikota Bandung, Indonesia (2013-2018)
+> ~ _By Dyan Nuranindya_  
+Kotak Pelangi
