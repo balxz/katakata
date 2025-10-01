@@ -1,4 +1,4 @@
-"**Cinta itu bukan hanya perasaan senang ketika bersamanya. Cinta juga adalah komitmen untuk tetap bersamanya, ketika perasaan senang itu hilang.**"
+"**Televisi memiliki bioritme yang berbeda dengan film. Saya suka biorhythm dari TV.**"
 
-> ~ _By Merry Riana_  
-Motivator, pengusaha dan penulis dari Indonesia
+> ~ _By Steven Spielberg_  
+Sutradara dan produser film dari Amerika Serikat
