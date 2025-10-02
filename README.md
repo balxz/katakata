@@ -1,4 +1,4 @@
-"**Terkadang cinta datang tanpa harus dimengerti. Semua mengalir begitu saja tanpa ada yang mampu menghentikannya.**"
+"**Memori adalah hal yang Anda lupakan.**"
 
-> ~ _By Dyan Nuranindya_  
-Kotak Pelangi
+> ~ _By Alexander Chase_  
+Jurnalis dan editor Amerika
