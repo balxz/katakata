@@ -1,4 +1,4 @@
-"**Kesalahan yang dilakukan oleh banyak politisi adalah melupakan bahwa mereka telah ditunjuk dan berpikir bahwa mereka telah diurapi.**"
+"**Hidup bahagia di dalam diri sendiri, dengan cara berpikir Anda.**"
 
-> ~ _By Claude D. Pepper_  
-Politisi Amerika dari Partai Demokrat
+> ~ _By Marcus Aurelius_  
+Kaisar dari Romawi Kuno
