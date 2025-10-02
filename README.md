@@ -1,4 +1,4 @@
-"**Hidup bahagia di dalam diri sendiri, dengan cara berpikir Anda.**"
+"**Dengan mencoba mencapai puncak dalam satu lompatan, begitu banyak kesengsaraan dihasilkan di dunia.**"
 
-> ~ _By Marcus Aurelius_  
-Kaisar dari Romawi Kuno
+> ~ _By William Cobbett_  
+Wartawan dari Britania Raya
