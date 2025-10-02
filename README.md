@@ -1,4 +1,4 @@
-"**Memori adalah hal yang Anda lupakan.**"
+"**Apakah kau masih akan berkata, kudengar derap jantungmu. Kita begitu berbeda dalam semua kecuali dalam cinta?**"
 
-> ~ _By Alexander Chase_  
-Jurnalis dan editor Amerika
+> ~ _By Soe Hok Gie_  
+Aktivis Indonesia Tionghoa
