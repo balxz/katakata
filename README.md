@@ -1,4 +1,4 @@
-"**Apakah kau masih akan berkata, kudengar derap jantungmu. Kita begitu berbeda dalam semua kecuali dalam cinta?**"
+"**Kesalahan yang dilakukan oleh banyak politisi adalah melupakan bahwa mereka telah ditunjuk dan berpikir bahwa mereka telah diurapi.**"
 
-> ~ _By Soe Hok Gie_  
-Aktivis Indonesia Tionghoa
+> ~ _By Claude D. Pepper_  
+Politisi Amerika dari Partai Demokrat
