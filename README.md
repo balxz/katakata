@@ -1,4 +1,4 @@
-"**Dengan mencoba mencapai puncak dalam satu lompatan, begitu banyak kesengsaraan dihasilkan di dunia.**"
+"**Kepuasan sejati bagi seorang wanita, datang dari rumah tangganya, daripada suami dan daripada anak-anaknya.**"
 
-> ~ _By William Cobbett_  
-Wartawan dari Britania Raya
+> ~ _By Nancy Reagan_  
+First lady dan istri Presiden Ronald Reagan dari Amerika Serikat
