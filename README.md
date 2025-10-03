@@ -1,4 +1,4 @@
-"**Karena saya ingin menunjukkan kepada Anda bahwa semua kata di dunia ini tidak dapat menggambarkan betapa saya sangat mengagumi Anda.**"
+"**Mereka selalu memenangkan siapa yang berpihak pada Tuhan.**"
 
-> ~ _By Aan Syafrani_  
-Penulis Indonesia
+> ~ _By Frederick W. Faber_  
+Penulis himne dan teolog Inggris
