@@ -1,4 +1,4 @@
-"**Selalu ada kemungkinan yang kadang kita tak bisa terka. Terjunlah untuk tahu maka kau akan siap menghadapi.**"
+"**Rata-rata pria, jika ia ikut campur dengan kritik, lalu adalah seorang kritikus yang konservatif.**"
 
-> ~ _By Nalaa_  
-Penulis dari Indonesia
+> ~ _By A. E. Housman_  
+Penyair dari Britania Raya
