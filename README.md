@@ -1,4 +1,4 @@
-"**Rata-rata pria, jika ia ikut campur dengan kritik, lalu adalah seorang kritikus yang konservatif.**"
+"**Karena saya ingin menunjukkan kepada Anda bahwa semua kata di dunia ini tidak dapat menggambarkan betapa saya sangat mengagumi Anda.**"
 
-> ~ _By A. E. Housman_  
-Penyair dari Britania Raya
+> ~ _By Aan Syafrani_  
+Penulis Indonesia
