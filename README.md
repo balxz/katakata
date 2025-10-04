@@ -1,4 +1,4 @@
-"**Mereka selalu memenangkan siapa yang berpihak pada Tuhan.**"
+"**Hanya karena aku mencintaimu, maka jiwaku dipenuhi warna, seperti sayap kupu-kupu. Hanya karena aku mencintaimu, maka hatiku bagai daun yang berurat dan berliku, di saat dirimu pergi dan berlalu.**"
 
-> ~ _By Frederick W. Faber_  
-Penulis himne dan teolog Inggris
+> ~ _By Langston Hughes_  
+Penyair dan penulis dari Amerika Serikat
