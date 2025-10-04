@@ -1,4 +1,4 @@
-"**Merasa bodoh itulah justru membuat saya terpandaikan.**"
+"**Aku benci akan diriku, keadaan dan rasa rindu yang terus hidup.**"
 
-> ~ _By Didik Nini Thowok_  
-
+> ~ _By Prilly Latuconsina_  
+5 Detik Dan Rasa Rindu
