@@ -1,4 +1,4 @@
-"**Aku benci akan diriku, keadaan dan rasa rindu yang terus hidup.**"
+"**Tak mengapa, karena partai perlu pikiran birokrat ahli. Tanpa mereka, partai politik hanya jadi roh gentayangan pencari suara.**"
 
-> ~ _By Prilly Latuconsina_  
-5 Detik Dan Rasa Rindu
+> ~ _By Aruni Husna_  
+Penulis dari Indonesia
