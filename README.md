@@ -1,4 +1,4 @@
-"**Tak mengapa, karena partai perlu pikiran birokrat ahli. Tanpa mereka, partai politik hanya jadi roh gentayangan pencari suara.**"
+"**Dalam hidup saya memiliki tujuan: untuk menjadi berguna dan untuk menyenangkan mereka yang saya cintai dan cintai.**"
 
-> ~ _By Aruni Husna_  
-Penulis dari Indonesia
+> ~ _By Hector Malot_  
+Penulis dari Perancis
