@@ -1,4 +1,4 @@
-"**Wajahnya pucat sebab saat itu sudah tak ada sisa setetes embun pun yang mampu menyejukkan hatinya.**"
+"**Ganteng itu relative. Selera cewek itu beda-beda.**"
 
-> ~ _By Kristin Fourina_  
+> ~ _By Equita Millianda_  
 Penulis dari Indonesia
