@@ -1,4 +1,4 @@
-"**Ganteng itu relative. Selera cewek itu beda-beda.**"
+"**Ketakutan adalah kesempatan bagi keberanian, bukan bukti pengecut.**"
 
-> ~ _By Equita Millianda_  
-Penulis dari Indonesia
+> ~ _By John McCain_  
+Politisi Partai Republik Amerika
