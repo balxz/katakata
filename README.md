@@ -1,4 +1,4 @@
-"**Pada dasarnya saya merasa bahwa ada banyak perbedaan antara panggung dan film seperti antara piano dan biola. Biasanya Anda tidak bisa menjadi ahli dalam keduanya.**"
+"**Wajahnya pucat sebab saat itu sudah tak ada sisa setetes embun pun yang mampu menyejukkan hatinya.**"
 
-> ~ _By Ethel Barrymore_  
-Aktris (lahir Ethel Mae Blythe) dari Amerika Serikat
+> ~ _By Kristin Fourina_  
+Penulis dari Indonesia
