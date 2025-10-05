@@ -1,4 +1,4 @@
-"**Dalam hidup saya memiliki tujuan: untuk menjadi berguna dan untuk menyenangkan mereka yang saya cintai dan cintai.**"
+"**Cinta itu nggak boleh takluk kepada hal-hal yang negatif. Cinta harus menang atas hal-hal buruk.**"
 
-> ~ _By Hector Malot_  
-Penulis dari Perancis
+> ~ _By Stanley Meulen_  
+Penulis dari Indonesia
