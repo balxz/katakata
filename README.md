@@ -1,4 +1,4 @@
-"**Ketakutan adalah kesempatan bagi keberanian, bukan bukti pengecut.**"
+"**Ini adalah karakteristik dari semua masalah manusia yang mendalam bahwa mereka tidak bisa didekati tanpa sedikit humor dan kebingungan.**"
 
-> ~ _By John McCain_  
-Politisi Partai Republik Amerika
+> ~ _By Freeman Dyson_  
+Dokter dan penulis dari Amerika Serikat
