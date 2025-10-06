@@ -1,4 +1,4 @@
-"**Untuk hidup di dunia sendiri, tempat aturan yang berlaku ditetapkan sendiri. Tidak lagi mengejar tujuan yang tidak terhitung, tapi hanya mengejar satu tujuan, tetap dan konsekuen.**"
+"**Apa benar anggapan orang-orang tentang gak ada cowok dan cewek yang benar-benar sahabatan? Katanya, ada masa ketika mereka saling jatuh hati, entah itu dulu, sekarang, atau nanti.**"
 
-> ~ _By Ursula Poznanski_  
-Penulis, Penyanyi dari Austria
+> ~ _By Aan Syafrani_  
+Penulis Indonesia
