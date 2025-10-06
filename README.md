@@ -1,4 +1,4 @@
-"**Ini adalah karakteristik dari semua masalah manusia yang mendalam bahwa mereka tidak bisa didekati tanpa sedikit humor dan kebingungan.**"
+"**Ada seorang pemberontak di dalam jiwaku.**"
 
-> ~ _By Freeman Dyson_  
-Dokter dan penulis dari Amerika Serikat
+> ~ _By Clint Eastwood_  
+Aktor dan produsen dari Amerika Serikat
