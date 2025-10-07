@@ -1,4 +1,4 @@
-"**Ada orang-orang yang percakapannya tergantung pada orang-orang di sekitar mereka, karena ada reaksi kimia yang hanya terjadi di hadapan tubuh-tubuh tertentu.**"
+"**Kita semua keluarga. Harus saling menjaga. Harus saling memahami. Masalah satu orang di antara kita adalah masalah kita bersama. Tapi bukan berarti hal-hal pribadi harus diketahui semuanya. Masing-masing tahu batasannya. Selama di hati kita ada cinta, semua masalah pasti bisa diselesaikan.**"
 
-> ~ _By André Maurois_  
-Penulis (ns. dari Émile Herzog) dari Perancis
+> ~ _By Dyan Nuranindya_  
+Kotak Pelangi
