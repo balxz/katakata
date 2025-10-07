@@ -1,4 +1,4 @@
-"**Pekerjaan saya bukan tentang sejarah hidup saya. Ini bukan tentang kisah neurosis saya.**"
+"**Saat-saat sulit mempunyai nilai ilmiah. Hal ini adalah kesempatan yang tidak pernah dilewatkan oleh pembelajar yang baik.**"
 
-> ~ _By Anish Kapoor_  
-Pematung India Inggris
+> ~ _By Ralph Waldo Emerson_  
+Penyair dan filsuf dari Amerika Serikat
