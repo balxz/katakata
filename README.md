@@ -1,4 +1,4 @@
-"**Semua orang pernah bermimpi buruk.**"
+"**Pekerjaan saya bukan tentang sejarah hidup saya. Ini bukan tentang kisah neurosis saya.**"
 
-> ~ _By Lauren Oliver_  
-Curiosity House the Shrunken Head
+> ~ _By Anish Kapoor_  
+Pematung India Inggris
