@@ -1,4 +1,4 @@
-"**Keabadian itu masalah untung-untungan; tidak bisa dijanjikan atau diperoleh. Malah mungkin tidak bisa dikenali.**"
+"**Sinergi adalah apa yang terjadi ketika satu tambah satu sama dengan sepuluh atau seratus atau bahkan seribu. Itu adalah sebuah hasil yang baik ketika dua manusia terhormat atau lebih melewati prasangka mereka untuk menghadapi sebuah tantangan yang besar.**"
 
-> ~ _By Gregory Maguire_  
-Penulis dari Amerika
+> ~ _By Stephen Covey_  
+Penulis dari Amerika Serikat
