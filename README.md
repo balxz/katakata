@@ -1,4 +1,4 @@
-"**Kita semua keluarga. Harus saling menjaga. Harus saling memahami. Masalah satu orang di antara kita adalah masalah kita bersama. Tapi bukan berarti hal-hal pribadi harus diketahui semuanya. Masing-masing tahu batasannya. Selama di hati kita ada cinta, semua masalah pasti bisa diselesaikan.**"
+"**Percayalah, jika dia memang cinta sejati kau, mau semenyakitkan apa pun, mau seberapa sulit liku yang harus dilalui, dia tetap akan bersama kau kelak, suatu saat nanti.**"
 
-> ~ _By Dyan Nuranindya_  
-Kotak Pelangi
+> ~ _By Tere Liye_  
+Penulis dari Indonesia
