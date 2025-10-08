@@ -1,4 +1,4 @@
-"**Ketidakpercayaan yang menakutkan adalah ketidakpercayaan pada diri Anda sendiri.**"
+"**Baca komik di sekolah, belajar di rumah. Keren juga, bisa kebalik gitu.**"
 
-> ~ _By Thomas Carlyle_  
-Penulis dan sejarawan dari Skotlandia
+> ~ _By Athira Marsya Khairina_  
+A Librarian’s Diary
