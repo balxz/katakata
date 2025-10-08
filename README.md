@@ -1,4 +1,4 @@
-"**Sinergi adalah apa yang terjadi ketika satu tambah satu sama dengan sepuluh atau seratus atau bahkan seribu. Itu adalah sebuah hasil yang baik ketika dua manusia terhormat atau lebih melewati prasangka mereka untuk menghadapi sebuah tantangan yang besar.**"
+"**Ketidakpercayaan yang menakutkan adalah ketidakpercayaan pada diri Anda sendiri.**"
 
-> ~ _By Stephen Covey_  
-Penulis dari Amerika Serikat
+> ~ _By Thomas Carlyle_  
+Penulis dan sejarawan dari Skotlandia
