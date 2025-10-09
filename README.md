@@ -1,4 +1,4 @@
-"**Semuanya secara teoritis tidak mungkin, hingga semuanya telah dilakukan.**"
+"**Shalat lo aje masih bolong-bolong, mending lo cari makan jangan yang nambah dosa, deh.**"
 
-> ~ _By Robert A. Heinlein_  
-Penulis fiksi ilmiah dari Amerika
+> ~ _By Wahyuningrat_  
+Penulis dari Indonesia
