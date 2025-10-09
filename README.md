@@ -1,4 +1,4 @@
-"**Jangan takut gelap. Jangan percaya saat ada yang mengatakan bahwa semua yang ada dalam kegelapan juga terlihat di bawah cahaya. Itu tidak benar.**"
+"**Semuanya secara teoritis tidak mungkin, hingga semuanya telah dilakukan.**"
 
-> ~ _By Kendare Blake_  
-Anna Dressed in Blood
+> ~ _By Robert A. Heinlein_  
+Penulis fiksi ilmiah dari Amerika
