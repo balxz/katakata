@@ -1,4 +1,4 @@
-"**Engkau tidak harus memangku jabatan agar bisa menjadi seorang pemimpin.**"
+"**Jangan takut gelap. Jangan percaya saat ada yang mengatakan bahwa semua yang ada dalam kegelapan juga terlihat di bawah cahaya. Itu tidak benar.**"
 
-> ~ _By Anthony J. D'Angelo_  
-Penulis Amerika
+> ~ _By Kendare Blake_  
+Anna Dressed in Blood
