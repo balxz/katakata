@@ -1,4 +1,4 @@
-"**Baca komik di sekolah, belajar di rumah. Keren juga, bisa kebalik gitu.**"
+"**Karena kita bergembira bukan karena memotong padi; kita bergembira karena memotong padi yang kita tanam sendiri. Dan jiwa manusia tidak bergembira karena upah, tapi karena bergembira untuk mendapatkan upah itu.**"
 
-> ~ _By Athira Marsya Khairina_  
-A Librarian’s Diary
+> ~ _By Multatuli_  
+Penulis (ns. dari Eduard Douwes Dekker) dari Belanda
