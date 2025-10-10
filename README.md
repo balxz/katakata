@@ -1,4 +1,4 @@
-"**Shalat lo aje masih bolong-bolong, mending lo cari makan jangan yang nambah dosa, deh.**"
+"**Senyum adalah bahasa cinta.**"
 
-> ~ _By Wahyuningrat_  
-Penulis dari Indonesia
+> ~ _By David Hare_  
+Dramawan dan sutradara dari Britania Raya
