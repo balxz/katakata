@@ -1,4 +1,4 @@
-"**Kelezatan adalah tipu muslihat kebenaran; rewel adalah prudery dari kepalsuan.**"
+"**Tanpa pahlawan, kita semua adalah orang biasa dan tidak tahu seberapa jauh kita bisa melangkah.**"
 
-> ~ _By Achille Poincelot_  
-Penulis dari Perancis
+> ~ _By Bernard Malamud_  
+Novelis Amerika
