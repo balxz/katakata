@@ -1,4 +1,4 @@
-"**Baik Anda di TV atau di atas panggung, Anda harus bekerja keras untuk tetap segar, nyata, dan penuh energi. Anda tidak bisa tenang kembali. Anda harus selalu waspada.**"
+"**Kelezatan adalah tipu muslihat kebenaran; rewel adalah prudery dari kepalsuan.**"
 
-> ~ _By Blythe Danner_  
-Aktris Amerika
+> ~ _By Achille Poincelot_  
+Penulis dari Perancis
