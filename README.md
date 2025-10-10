@@ -1,4 +1,4 @@
-"**Tanpa pahlawan, kita semua adalah orang biasa dan tidak tahu seberapa jauh kita bisa melangkah.**"
+"**Menjadi ibu itu sulit. Jika Anda hanya ingin mencintai makhluk kecil yang luar biasa, Anda bisa mendapatkan anak anjing.**"
 
-> ~ _By Bernard Malamud_  
-Novelis Amerika
+> ~ _By Barbara Walters_  
+Jurnalis dan penulis Amerika
