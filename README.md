@@ -1,4 +1,4 @@
-"**Ternyata orang kayak kamu punya perasaan nggak enak juga toh?**"
+"**Katanya, perempuan itu tercabik gelap di hutan.**"
 
-> ~ _By Nia Sutardi_  
+> ~ _By Khairul Fatah_  
 Penulis dari Indonesia
