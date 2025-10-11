@@ -1,4 +1,4 @@
-"**Tapi aku harus membaca bab pertama buku ini nanti malam, di waktu senggangku!**"
+"**Bentuk ekspresi yang paling brutal, jelek, putus asa, kejam yang pernah saya dengar.**"
 
-> ~ _By Tamora Pierce_  
-Penulis dari Amerika
+> ~ _By Frank Sinatra_  
+Penyanyi, aktor dan produsen dari Amerika Serikat
