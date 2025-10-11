@@ -1,4 +1,4 @@
-"**Sepandai apapun beberapa dari manusia, adakalanya tak pernah belajar dari pengalaman.**"
+"**Tapi aku harus membaca bab pertama buku ini nanti malam, di waktu senggangku!**"
 
-> ~ _By Kate Kerrigan_  
-Penulis dari Inggris
+> ~ _By Tamora Pierce_  
+Penulis dari Amerika
