@@ -1,4 +1,4 @@
-"**Bentuk ekspresi yang paling brutal, jelek, putus asa, kejam yang pernah saya dengar.**"
+"**Ternyata orang kayak kamu punya perasaan nggak enak juga toh?**"
 
-> ~ _By Frank Sinatra_  
-Penyanyi, aktor dan produsen dari Amerika Serikat
+> ~ _By Nia Sutardi_  
+Penulis dari Indonesia
