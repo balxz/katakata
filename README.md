@@ -1,4 +1,4 @@
-"**Menjadi ibu itu sulit. Jika Anda hanya ingin mencintai makhluk kecil yang luar biasa, Anda bisa mendapatkan anak anjing.**"
+"**Sepandai apapun beberapa dari manusia, adakalanya tak pernah belajar dari pengalaman.**"
 
-> ~ _By Barbara Walters_  
-Jurnalis dan penulis Amerika
+> ~ _By Kate Kerrigan_  
+Penulis dari Inggris
