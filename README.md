@@ -1,4 +1,4 @@
-"**Katanya, perempuan itu tercabik gelap di hutan.**"
+"**Aku mau hidup; tanpa hati.**"
 
-> ~ _By Khairul Fatah_  
-Penulis dari Indonesia
+> ~ _By Adrie_  
+Penulis Indonesia
