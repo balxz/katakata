@@ -1,4 +1,4 @@
-"**Aku mau hidup; tanpa hati.**"
+"**Orang-orang meminta kritik, tetapi mereka hanya ingin pujian.**"
 
-> ~ _By Adrie_  
-Penulis Indonesia
+> ~ _By William Somerset Maugham_  
+Penulis dari Inggris
