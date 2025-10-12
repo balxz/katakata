@@ -1,4 +1,4 @@
-"**Orang-orang meminta kritik, tetapi mereka hanya ingin pujian.**"
+"**Hal yang sangat sulit tentang kerendahan hati adalah Anda tidak bisa menyombongkan diri.**"
 
-> ~ _By William Somerset Maugham_  
-Penulis dari Inggris
+> ~ _By Gene Brown_  
+Penulis dari Amerika Serikat
