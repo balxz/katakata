@@ -1,4 +1,4 @@
-"**Hal yang sangat sulit tentang kerendahan hati adalah Anda tidak bisa menyombongkan diri.**"
+"**Anda tidak bisa berjabat tangan dengan kepalan tangan.**"
 
-> ~ _By Gene Brown_  
-Penulis dari Amerika Serikat
+> ~ _By Indira Gandhi_  
+Politikus dari India
