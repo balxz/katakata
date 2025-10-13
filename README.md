@@ -1,4 +1,4 @@
-"**Suaraku terdengar serak setelah operasi pada nodul vokal besar.**"
+"**Jadilah selembar kertas kosong, jadilah sebidang tanah yang tak ditumbuhi apa-apa, siap ditanami. Sebutir padi. Mungkin dari sang mutlak.**"
 
-> ~ _By Bonnie Tyler_  
-Penyanyi Welsh
+> ~ _By Haidar Bagir_  
+Belajar Hidup dari Rumi
