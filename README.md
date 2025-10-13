@@ -1,4 +1,4 @@
-"**Seni yang tidak muncul dari kehidupan adalah kecerdasan.**"
+"**Suaraku terdengar serak setelah operasi pada nodul vokal besar.**"
 
-> ~ _By Otto Weiss_  
-Penulis dan penyair dari Ceko
+> ~ _By Bonnie Tyler_  
+Penyanyi Welsh
