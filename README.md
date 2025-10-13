@@ -1,4 +1,4 @@
-"**Karena saya tidak berpikir ada orang yang benar-benar mendengarkan musik saya, saya pikir saya bisa mengatakan apapun yang saya inginkan.**"
+"**Seni yang tidak muncul dari kehidupan adalah kecerdasan.**"
 
-> ~ _By Benjamin Clementine_  
-Artis, penyair, vokalis, komposer, dan musisi Inggris
+> ~ _By Otto Weiss_  
+Penulis dan penyair dari Ceko
