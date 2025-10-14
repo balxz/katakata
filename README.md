@@ -1,4 +1,4 @@
-"**Pernikahan membawa seseorang ke dalam hubungan yang fatal dengan adat dan tradisi, dan tradisi dan adat seperti angin dan cuaca, semuanya tak terhitung.**"
+"**Baik Brutus dan Hamlet pada dasarnya sangat intelektual dan mencerminkan kebiasaan. Keduanya bahkan dapat disebut, dalam arti populer, filosofis; Brutus bisa disebut demikian dalam arti yang lebih ketat.**"
 
-> ~ _By Søren Kierkegaard_  
-
+> ~ _By Andrew Coyle Bradley_  
+Pengacara Amerika
