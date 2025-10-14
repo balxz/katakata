@@ -1,4 +1,4 @@
-"**Jadilah selembar kertas kosong, jadilah sebidang tanah yang tak ditumbuhi apa-apa, siap ditanami. Sebutir padi. Mungkin dari sang mutlak.**"
+"**Pernikahan membawa seseorang ke dalam hubungan yang fatal dengan adat dan tradisi, dan tradisi dan adat seperti angin dan cuaca, semuanya tak terhitung.**"
 
-> ~ _By Haidar Bagir_  
-Belajar Hidup dari Rumi
+> ~ _By Søren Kierkegaard_  
+
