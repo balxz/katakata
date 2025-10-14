@@ -1,4 +1,4 @@
-"**Baik Brutus dan Hamlet pada dasarnya sangat intelektual dan mencerminkan kebiasaan. Keduanya bahkan dapat disebut, dalam arti populer, filosofis; Brutus bisa disebut demikian dalam arti yang lebih ketat.**"
+"**Kehormatan adalah pakaian dalam jiwa; yang pertama diletakkan olehnya dengan daging, dan yang terakhir diletakkan pada pemisahannya darinya.**"
 
-> ~ _By Andrew Coyle Bradley_  
-Pengacara Amerika
+> ~ _By Akhenaton_  
+Firaun Mesir
