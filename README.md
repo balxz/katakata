@@ -1,4 +1,4 @@
-"**Satu-satunya hal yang dapat menyelamatkan dunia adalah merebut kembali kesadaran dunia. Itulah yang dilakukan puisi.**"
+"**Kapasitas otak manusia, sebesar apa pun itu, masih memiliki limit.**"
 
-> ~ _By Allen Ginsberg_  
-Penyair dari Amerika Serikat
+> ~ _By Ayra_  
+Penulis dari Indonesia
