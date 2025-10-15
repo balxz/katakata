@@ -1,4 +1,4 @@
-"**Apa yang menyatukan dunia, seperti yang telah saya pelajari dari pengalaman pahit, adalah hubungan seksual.**"
+"**Ada kebahagiaan dalam kewajiban, meskipun mungkin tidak terlihat seperti itu.**"
 
-> ~ _By Henry Miller_  
-Penulis dari Amerika Serikat
+> ~ _By José Marti_  
+Penulis, penyair dan Pahlawan Nasional Kuba
