@@ -1,4 +1,4 @@
-"**Kebohongan terbesar dari sebagian besar orang adalah mereka berpikir bahwa mereka hidup.**"
+"**Anda benar-benar harus berhati-hati dengan petunjuk yang Anda berikan ke dalam film - jika mereka terlalu berat, atau Anda telah menjadi panutan penonton yang sedikit lebih bodoh, maka Anda telah memanjakannya untuk orang-orang yang bahkan sedikit pintar.**"
 
-> ~ _By Peter Sirius_  
-Penyair dan aforis dari Jerman (ns. dari Otto Kimmig)
+> ~ _By Ben Wheatley_  
+Pembuat film dan penulis skenario Inggris
