@@ -1,4 +1,4 @@
-"**Jadikan rakyat berdaulat dan si miskin akan menggunakan mesin pemerintah untuk merampas si kaya.**"
+"**Tugas pertama dokter adalah mendidik massa untuk tidak minum obat.**"
 
-> ~ _By C. Northcote Parkinson_  
-Sejarawan dan penulis angkatan laut Inggris
+> ~ _By Sir William Osler_  
+Dokter dari Kanada
