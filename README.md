@@ -1,4 +1,4 @@
-"**Kapasitas otak manusia, sebesar apa pun itu, masih memiliki limit.**"
+"**Jadikan rakyat berdaulat dan si miskin akan menggunakan mesin pemerintah untuk merampas si kaya.**"
 
-> ~ _By Ayra_  
-Penulis dari Indonesia
+> ~ _By C. Northcote Parkinson_  
+Sejarawan dan penulis angkatan laut Inggris
