@@ -1,4 +1,4 @@
-"**Bahasa subversif, bagaimanapun, harus terus-menerus diciptakan kembali, karena itu terus-menerus dikooptasi oleh yang berkuasa.**"
+"**Kehidupan sulit ditebak bagaimana kelanjutannya. Jalan kecil yang semakin sempit dan sempit... Tapi kesabaran dalam perjalanan pernikahan akan menemukan jalan lebar.**"
 
-> ~ _By Carol P. Christ_  
-Sejarawan dan penulis feminis Amerika
+> ~ _By Achi T.M_  
+Penulis asal Indonesia
