@@ -1,4 +1,4 @@
-"**Kehidupan sulit ditebak bagaimana kelanjutannya. Jalan kecil yang semakin sempit dan sempit... Tapi kesabaran dalam perjalanan pernikahan akan menemukan jalan lebar.**"
+"**Gue akan mengejar mimpi gue sejak kecil. Menjadi seorang desainer di Jepang.**"
 
-> ~ _By Achi T.M_  
-Penulis asal Indonesia
+> ~ _By Andori Andriani_  
+Doriyaki
