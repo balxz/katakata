@@ -1,4 +1,4 @@
-"**Jika kamu tidak bermain dengan baik, permainan tidak akan menarik. Jika hal itu terjadi, aku akan pergi keluar dan bermain seperti saat kanak-kanak dulu.**"
+"**Saya tidak punya masalah dengan agama siapa pun. Tetapi jika Anda mengklaim Bumi hanya berusia 10.000 tahun, itu salah.**"
 
-> ~ _By Thomas J. Watson_  
-Pengusaha, pendiri IBM dari Amerika Serikat
+> ~ _By Bill Nye_  
+Komunikator sains Amerika, presenter televisi
